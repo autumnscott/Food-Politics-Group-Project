@@ -2,7 +2,7 @@
 
 ## Value :
 
-The purpose of this blog is to inform the general public about interesting and controversial issues involving food.
+The purpose of this blog is to inform the general public about interesting and controversial issues involving food. People would read these blog posts so that they could stay informed on issues that concern the consumer.
 
  ### Examples: 
   
@@ -16,4 +16,4 @@ On the about page of the blog, the author introduces herself as a "professor of 
 
 ## Use of Media : 
 
-The blog shares posts through facebook and twitter. The author also has a podcast where people can listen to her blog posts. 
+The blog shares posts through facebook and twitter. The author also has a podcast where people can listen to her blog posts. Viewers can subscribe to the authors facebook and twitter accounts.
