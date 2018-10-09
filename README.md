@@ -12,7 +12,7 @@ The purpose of this blog is to inform the general public about interesting and c
 
 ## Key Terms :
 
-On the about page of the blog, the author introduces herself as a "professor of Nutrition, food studies, and public health." Professor is a key term in the fact that it shows that the author is knowledgeable in the area of food and public health. This gives the author credibility with what she's saying. Also, her blog posts are supported by research that she may or may not conduct herself. She is also the author of multiple books, so this shows that she is well read on the issue. Many of her topics discuss matters of concern that affet the genral public.
+On the about page of the blog, the author introduces herself as a "professor of Nutrition, food studies, and public health." Professor is a key term in the fact that it shows that the author is knowledgeable in the area of food and public health. This gives the author credibility with what she's saying. Also, her blog posts are supported by research that she may or may not conduct herself. She is also the author of multiple books, so this shows that she is well read on the issue. Many of her topics discuss matters of concern that affet the genral public. Often the author will discuss controversial and maybe even toxic ingredients that are being put into the consumer's food.
 
 ## Use of Media : 
 
